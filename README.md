@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @mofz
+- 👀 I’m interested in fivem.
+- 🌱 I’m currently learning lua.
+- 💞️ I’m looking to collaborate on fivem server.
+- 📫 How to reach me - via discord :aleksandarrx .
+- 😄 Pronouns:He/Him .
+- ⚡ Fun fact: I like ivan4o's sister.
